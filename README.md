@@ -26,19 +26,19 @@ Vanilla Ice Cream has a universal appeal and almost each of us love it. Making V
 
   1. #### Boil the milk and keep stirring
 
-     - [ ] ##### take a small bowl and add 1 teaspoon corn flour in 4 tablespoon milk, stir it into a smooth paste. In the meantime, take a vessel and boil the milk, keep stirring so that the milk does not stick to the bottom.
+     - [ ] take a small bowl and add 1 teaspoon corn flour in 4 tablespoon milk, stir it into a smooth paste. In the meantime, take a vessel and boil the milk, keep stirring so that the milk does not stick to the bottom.
 
   2. #### Add sugar to the blend
 
-     - [ ] ##### Reduce the milk to half. Add in the corn flour and milk mixture. stirring occasionally. Now, add the sugar and the allow the milk to reduce. Once the consistency of milk thickens and reduce the flame to low.
+     - [ ] Reduce the milk to half. Add in the corn flour and milk mixture. stirring occasionally. Now, add the sugar and the allow the milk to reduce. Once the consistency of milk thickens and reduce the flame to low.
 
   3. ####  Add fresh cream and vanilla essence
 
-     - [ ] ##### Next, add the fresh cream and vanilla essence and mix well. After mixing,pour the mixture into a aluminium container. Cover the container with an aluminium foil and freeze for 6 hours or till semi-set.
+     - [ ] Next, add the fresh cream and vanilla essence and mix well. After mixing,pour the mixture into a aluminium container. Cover the container with an aluminium foil and freeze for 6 hours or till semi-set.
 
   4. #### Serve and indulge in the goodness
 
-     - [ ] ##### Remove from the freezer and pour the mixture into a mixer and blend till smooth. Transfer the mixture back into the same aluminium container. Cover with an aluminium foil and freeze for 10 hours or till set. Scoop the vanilla ice cream in some crispy waffle cones.
+     - [ ] Remove from the freezer and pour the mixture into a mixer and blend till smooth. Transfer the mixture back into the same aluminium container. Cover with an aluminium foil and freeze for 10 hours or till set. Scoop the vanilla ice cream in some crispy waffle cones.
 
        ####            THE  VANILLA ICE CREAM IS READY !!
 
